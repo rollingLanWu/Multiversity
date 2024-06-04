@@ -9,7 +9,7 @@
 * 全平台id：莫提之地
   
    [小红书](https://www.xiaohongshu.com/user/profile/6216cbce000000001000787b?xhsshare=CopyLink&appuid=5b54863b4eacab5fd33f2f00&apptime=1717431184) / 微信视频号 / [抖音](https://www.douyin.com/user/MS4wLjABAAAADb0dODgljuLBCbqwl362CcvZDmE5px0Do_zrbgXXJBv5JTGrUg95D1UJ1XljzAee) / [微博](https://weibo.com/u/7915052238) 
-* 小红书不定期直播 / 每月一次线下活动 / [播客深度对话](http://xhslink.com/0Z0nkL)
+* 小红书不定期直播 / 每月一次线下活动（微信群内报名） / [播客深度对话](http://xhslink.com/0Z0nkL)
 
 **文档说明**
 * 文档由群友自发整理，内容主体为社区微信群内问答交流信息，包括部分直播/线下/视频内容摘录，后续会持续更新、完善框架。整理初衷是被金金社群内容的真诚、智慧、独特视角深深打动，直击心灵，时常感到“震颤”。故整理成系统文档方便查阅，常看常新！希望对你有帮助~欢迎加入社区一起来玩:)
