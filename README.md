@@ -431,7 +431,7 @@
 
 你物质世界的意识分为无意识、潜意识、表意识。三位一体。
 
-![](res\consciousness.png)
+![](res/consciousness.png)
 
 
 **Q：** 元信念的认知是来自于哪里呀？感觉挖掘到元信念后，刷新它，是否意味着用一个新的元信念去替代它，也就是说我愿意看到什么样的世界和体验，就创造一个新的元信念去覆盖，这样理解对不？
@@ -4030,7 +4030,7 @@ Accept, Allow, Appreciate
 [建设中…](https://www.xiaoyuzhoufm.com/podcast/65e718c7cf58e9b0073e0d0c?s=eyJ1IjogIjYzNWE1MjUxZWRjZTY3MTA0YWMxZDU1OSJ9)
 
 #### 播客嘉宾
-*收听并接收能量波！<br>*
+*即刻收听并接收能量波！<br>*
 [化身课代表研究意识和能量，从外星人那里学会了什么？巴夏传讯是真是假？（上）](https://www.xiaoyuzhoufm.com/episode/665c4a1094977a26efa161ed?s=eyJ1IjogIjY0MDg4ZDY3ZWRjZTY3MTA0YTk4YjFhNCJ9)
 *止念才能生慧，把念头止住才能变成畅通的管道，而每个人都可以通灵，通自己的灵，搞明白如何自我赋能。<br>*
 
