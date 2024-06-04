@@ -212,8 +212,8 @@
     - [2024/06/08 上海场](#20240608-上海场)
     - [2024/05/12 北京场](#20240512-北京场)
   - [播客](#播客)
-    - [1. 金石为开](#1.金石为开)
-    - [2. 播客嘉宾](#2.播客嘉宾)
+    - [金石为开](#金石为开)
+    - [播客嘉宾](#播客嘉宾)
 
 <!-- /code_chunk_output -->
 
@@ -4032,11 +4032,11 @@ Accept, Allow, Appreciate
 >https://haileyhan144.notion.site/Multiversity-20240512-69143c79925f4e78816e7e47cea24259?pvs=4
 
 ### 播客 
-#### 1. 金石为开
+#### 金石为开
 * [建设中…](https://www.xiaoyuzhoufm.com/podcast/65e718c7cf58e9b0073e0d0c?s=eyJ1IjogIjYzNWE1MjUxZWRjZTY3MTA0YWMxZDU1OSJ9)
 * 添加微信"motizhidi"，预约深度对谈~
   
-#### 2. 播客嘉宾
+#### 播客嘉宾
 *即刻收听并接收能量波！<br>*
 
 1. [化身课代表研究意识和能量，从外星人那里学会了什么？巴夏传讯是真是假？（上）](https://www.xiaoyuzhoufm.com/episode/665c4a1094977a26efa161ed?s=eyJ1IjogIjY0MDg4ZDY3ZWRjZTY3MTA0YTk4YjFhNCJ9)
