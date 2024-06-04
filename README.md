@@ -3511,8 +3511,9 @@ Accept, Allow, Appreciate
 ### 信息源
 **金金：** 我的体系里70-80%是基于巴夏的内容。可以说他是我获得信息的一个意识许可，因为他说的东西仿佛是我一直知道的；还有ELAN。
 
-**Q：** 推荐一些书
-金金：巴夏的[*The Masters of Limitation<br>*](res/TheMastersofLimitation.epub)
+**Q：** 推荐一些书 
+
+**金金：** 巴夏的[*The Masters of Limitation<br>*](res/TheMastersofLimitation.epub)
 
 **Q：** 推荐一些女性灵媒
 
