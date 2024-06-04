@@ -1621,6 +1621,8 @@ remember, re-member,再次归队。
 
 你的问题中仍然包含着一些固有定义，你对于死亡、灾祸、痛苦的定义，是你对于特定“发生”的理解，这些都是客观的没有内置价值评判的发生，并不是“不好的”。只有你站在有限生命之中的小我视角，便会得出这样的结论，继而影响你对现实的理解和生命展开的方式。而我们所谓的提升和修行，就是要扩展自己的视角，用不同的视角去重视当下的生命体验，理解生老病死不是“祸”，不是“痛苦”，而是你对于境遇不自觉的“认为”，作为一个灵魂来看，一切的发生都是为了你的成长，这种成长不单是在同一世的物质世界里成长，也可以发生在多世之间，还可以发生在非物质层名之中。
 
+![](/res/ego.png) 
+
 #### 死亡 
 
 
@@ -4027,8 +4029,9 @@ Accept, Allow, Appreciate
 
 ### 播客 
 #### 1. 金石为开
-[建设中…](https://www.xiaoyuzhoufm.com/podcast/65e718c7cf58e9b0073e0d0c?s=eyJ1IjogIjYzNWE1MjUxZWRjZTY3MTA0YWMxZDU1OSJ9)
-
+* [建设中…](https://www.xiaoyuzhoufm.com/podcast/65e718c7cf58e9b0073e0d0c?s=eyJ1IjogIjYzNWE1MjUxZWRjZTY3MTA0YWMxZDU1OSJ9)
+* 添加微信"motizhidi"，预约深度对谈~
+  
 #### 2. 播客嘉宾
 *即刻收听并接收能量波！<br>*
 
