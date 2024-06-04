@@ -7,6 +7,7 @@
 **关注/交流方式**
 * 🔍"motizhidi" 加入微信群聊交流（先阅读群规~）
 * 全平台id：莫提之地
+  
    [小红书](https://www.xiaohongshu.com/user/profile/6216cbce000000001000787b?xhsshare=CopyLink&appuid=5b54863b4eacab5fd33f2f00&apptime=1717431184) / 微信视频号 / [抖音](https://www.douyin.com/user/MS4wLjABAAAADb0dODgljuLBCbqwl362CcvZDmE5px0Do_zrbgXXJBv5JTGrUg95D1UJ1XljzAee) / [微博](https://weibo.com/u/7915052238) 
 * 小红书不定期直播 / 每月一次线下活动 / [播客深度对话](http://xhslink.com/0Z0nkL)
 
