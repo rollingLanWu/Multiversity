@@ -431,7 +431,7 @@
 
 你物质世界的意识分为无意识、潜意识、表意识。三位一体。
 
-![](res/consciousness.png)
+![](/res/consciousness.png)
 
 
 **Q：** 元信念的认知是来自于哪里呀？感觉挖掘到元信念后，刷新它，是否意味着用一个新的元信念去替代它，也就是说我愿意看到什么样的世界和体验，就创造一个新的元信念去覆盖，这样理解对不？
@@ -2251,7 +2251,7 @@ Q：高频状态若是中间的立体物，边上的站位和视角（他人的�
 **金金：**
 你会发现人们认为有“多重人格”的人是可以很轻松的做到的，这就是我们需要从这些人那学到的。因为你的元信念并不相信自己可以在一瞬间会做到，同时你的生命主题也不需要你有这样的体验，因此你更有可能经历的并不是“瞬间的变化”，而是相对快的变化。这里的悖论就在于，其实你已经在做很多这种的“瞬间变化”，但这种完全的变化的前提是你不记得以前版本的记忆，因此你也就不会感知到了。
 
-![](/res/PastandFuture.jpg)
+![](/res/PastandFuture.jpg) 
 
 #### 轮回
 **金金：** 其实不需要关注前世，前世跟你昨天一样，是当下创造的，用来合理化解释当下状态的能量链接。天赋和兴奋，就是你当下的表达，是你当下该做的事儿 
@@ -4026,14 +4026,13 @@ Accept, Allow, Appreciate
 >https://haileyhan144.notion.site/Multiversity-20240512-69143c79925f4e78816e7e47cea24259?pvs=4
 
 ### 播客 
-#### 金石为开
+#### 1. 金石为开
 [建设中…](https://www.xiaoyuzhoufm.com/podcast/65e718c7cf58e9b0073e0d0c?s=eyJ1IjogIjYzNWE1MjUxZWRjZTY3MTA0YWMxZDU1OSJ9)
 
-#### 播客嘉宾
+#### 2. 播客嘉宾
 *即刻收听并接收能量波！<br>*
-[化身课代表研究意识和能量，从外星人那里学会了什么？巴夏传讯是真是假？（上）](https://www.xiaoyuzhoufm.com/episode/665c4a1094977a26efa161ed?s=eyJ1IjogIjY0MDg4ZDY3ZWRjZTY3MTA0YTk4YjFhNCJ9)
-*止念才能生慧，把念头止住才能变成畅通的管道，而每个人都可以通灵，通自己的灵，搞明白如何自我赋能。<br>*
 
-[化身课代表研究意识和能量，从外星人那里学会了什么？巴夏传讯是真是假？（下）](https://www.xiaoyuzhoufm.com/episode/665c523d63c334a2fbca3e30?s=eyJ1IjogIjY0MDg4ZDY3ZWRjZTY3MTA0YTk4YjFhNCJ9)
-*清理掉所有不属于你自己的元信念，真正去表达自己的内在，这个过程你会发出你的光，传递出能量，照耀身边其他的人。<br>*
+1. [化身课代表研究意识和能量，从外星人那里学会了什么？巴夏传讯是真是假？（上）](https://www.xiaoyuzhoufm.com/episode/665c4a1094977a26efa161ed?s=eyJ1IjogIjY0MDg4ZDY3ZWRjZTY3MTA0YTk4YjFhNCJ9)
+2. [化身课代表研究意识和能量，从外星人那里学会了什么？巴夏传讯是真是假？（下）](https://www.xiaoyuzhoufm.com/episode/665c523d63c334a2fbca3e30?s=eyJ1IjogIjY0MDg4ZDY3ZWRjZTY3MTA0YTk4YjFhNCJ9)
+
 
