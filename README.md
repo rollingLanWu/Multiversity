@@ -4369,9 +4369,9 @@ Accept, Allow, Appreciate
 ### 「金石为开」播客
 * [建设中…](https://www.xiaoyuzhoufm.com/podcast/65e718c7cf58e9b0073e0d0c?s=eyJ1IjogIjYzNWE1MjUxZWRjZTY3MTA0YWMxZDU1OSJ9)
 * 添加微信"motizhidi"，预约深度对谈~
+* 作为播客嘉宾：
   
-作为播客嘉宾：
-*即刻收听并接收能量波！<br>*
+（*即刻收听并接收能量波！<br>*）
 
 1. [化身课代表研究意识和能量，从外星人那里学会了什么？巴夏传讯是真是假？（上）](https://www.xiaoyuzhoufm.com/episode/665c4a1094977a26efa161ed?s=eyJ1IjogIjY0MDg4ZDY3ZWRjZTY3MTA0YTk4YjFhNCJ9)
 2. [化身课代表研究意识和能量，从外星人那里学会了什么？巴夏传讯是真是假？（下）](https://www.xiaoyuzhoufm.com/episode/665c523d63c334a2fbca3e30?s=eyJ1IjogIjY0MDg4ZDY3ZWRjZTY3MTA0YTk4YjFhNCJ9)
