@@ -4374,7 +4374,7 @@ Accept, Allow, Appreciate
 
  
 ### 「莫提之地」播客
-（*即刻收听并接收能量波！<br>*）
+*即刻收听并接收能量波！<br>*
 
 * 更新啦！ [回声#001-金金生日快乐！](https://www.xiaoyuzhoufm.com/episode/666ede92b6a8412729236711?s=eyJ1IjogIjY1ZGYxNWM1ZWRjZTY3MTA0YWEwNWRiMiJ9)
 * 添加微信"motizhidi"，预约深度对谈~
