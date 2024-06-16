@@ -8,7 +8,7 @@
 * 🔍"motizhidi" 加入微信群聊交流（先阅读群公告~）
 * 全平台id：莫提之地
   
-   [小红书](https://www.xiaohongshu.com/user/profile/6216cbce000000001000787b?xhsshare=CopyLink&appuid=5b54863b4eacab5fd33f2f00&apptime=1717431184) / 微信视频号 / [抖音](https://www.douyin.com/user/MS4wLjABAAAADb0dODgljuLBCbqwl362CcvZDmE5px0Do_zrbgXXJBv5JTGrUg95D1UJ1XljzAee) / [微博](https://weibo.com/u/7915052238) 
+   [小红书](https://www.xiaohongshu.com/user/profile/6216cbce000000001000787b?xhsshare=CopyLink&appuid=5b54863b4eacab5fd33f2f00&apptime=1717431184) / 微信视频号 / [抖音] (https://www.douyin.com/user/MS4wLjABAAAADb0dODgljuLBCbqwl362CcvZDmE5px0Do_zrbgXXJBv5JTGrUg95D1UJ1XljzAee) / [微博](https://weibo.com/u/7915052238)  / [小宇宙播客](https://www.xiaoyuzhoufm.com/podcast/65e718c7cf58e9b0073e0d0c)
 * 小红书不定期直播 / 每月线下活动（微信群内报名）/ [播客深度对话](http://xhslink.com/0Z0nkL)
 
 **文档说明**
@@ -61,7 +61,7 @@
     - [意识许可](#意识许可)
       - [是什么](#是什么)
       - [开悟必须吃素静坐？](#开悟必须吃素静坐)
-      - [世上无难事](#世上无难事)
+      - [用心就能做到：从“信念”到“执念”](#用心就能做到：从“信念”到“执念”)
     - [集体意识](#集体意识)
     - [信息茧房/害怕错过](#信息茧房害怕错过)
     - [共时性/缘分](#共时性缘分)
@@ -234,7 +234,7 @@
     - [2024/05/20 小红书直播（全）](#20240520-小红书直播全)
     - [2024/05/03 小红书直播（下）](#20240503-小红书直播下)
     - [2024/05/03 小红书直播（上）](#20240503-小红书直播上)
-  - [「金石为开」播客](#金石为开播客)
+  - [「莫提之地」播客](#莫提之地播客)
   - [「无人问金」线下活动](#无人问金线下活动)
     - [2024/06/08 上海场](#20240608-上海场)
     - [2024/05/12 北京场](#20240512-北京场)
@@ -987,7 +987,7 @@ Passion这种情绪状态是你的身体对于高频能量的翻译。
 
 **Q2：** 我遇到的修行人都不强调这些，还是你的频率看到了这些东西。补充一下，我说打坐重要是给忽略身体实修的人说的（主要是说给我自己），所谓性命双修，偏一门一般觉醒不了。找到自己适合的法门就好
 
-##### 世上无难事
+##### 用心就能做到：从“信念”到“执念”
 **Q：** 金代表，想问下，就是我感觉小时候就一直有种信念，就是只要真的是用心，就没有事情做不到。这个信念帮助了我很多，可是有时候也是我的困扰，比如我读书的时候，会为了一道数学题，一直去计算，就是死磕一样，有一次甚至实在太晚了去睡觉，后面在梦里做出来了。工作也是，有时候就会死磕一个事情。我想问说，是不是这个信念是对的，只是有时候我变成了执念，为了证明这个信念是对的？可以这样理解嘛？
 
 **金金：** 你的理解没错。这种“信念”的意义在于让你处在“自信和完整”的能量状态里，从而可以驱动你的行动、推动符合你这种频率的剧情的到来。但是如果你执着于结果“必须”要以什么样的方式来，就变成了执念，就是是一种自负，自以为自己知道该显化什么。但实际上你无法知道你需要什么，这不是头脑的职责所在。因此，让这种共“信念”作为自己的意识许可就好
@@ -4365,12 +4365,12 @@ Accept, Allow, Appreciate
 
 
  
-### 「金石为开」播客
-* [建设中…](https://www.xiaoyuzhoufm.com/podcast/65e718c7cf58e9b0073e0d0c?s=eyJ1IjogIjYzNWE1MjUxZWRjZTY3MTA0YWMxZDU1OSJ9)
+### 「莫提之地」播客
+（*即刻收听并接收能量波！<br>*）
+
+* 更新啦！ [回声#001-金金生日快乐！](https://www.xiaoyuzhoufm.com/episode/666ede92b6a8412729236711?s=eyJ1IjogIjY1ZGYxNWM1ZWRjZTY3MTA0YWEwNWRiMiJ9)
 * 添加微信"motizhidi"，预约深度对谈~
 * 作为播客嘉宾：
-  
-（*即刻收听并接收能量波！<br>*）
 
 1. [化身课代表研究意识和能量，从外星人那里学会了什么？巴夏传讯是真是假？（上）](https://www.xiaoyuzhoufm.com/episode/665c4a1094977a26efa161ed?s=eyJ1IjogIjY0MDg4ZDY3ZWRjZTY3MTA0YTk4YjFhNCJ9)
 2. [化身课代表研究意识和能量，从外星人那里学会了什么？巴夏传讯是真是假？（下）](https://www.xiaoyuzhoufm.com/episode/665c523d63c334a2fbca3e30?s=eyJ1IjogIjY0MDg4ZDY3ZWRjZTY3MTA0YTk4YjFhNCJ9)
