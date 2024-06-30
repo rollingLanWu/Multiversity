@@ -4932,11 +4932,11 @@ Accept, Allow, Appreciate
 ### 「莫提之地」播客
 *即刻收听并接收能量波！<br>*
 
-* 更新啦！ [Ep.01-留守儿童只配悲惨的一生？](https://www.xiaoyuzhoufm.com/episode/667bb8aec13b46d76cfafdbe)
-* 添加微信"motizhidi"，预约深度对谈~
+* 更新啦！
+>[Ep.01-留守儿童只配悲惨的一生？](https://www.xiaoyuzhoufm.com/episode/667bb8aec13b46d76cfafdbe)
+* 如果你也想参与，可以添加微信"motizhidi"，预约深度对谈~
 * 作为播客嘉宾：
-
-化身课代表研究意识和能量，从外星人那里学会了什么？巴夏传讯是真是假？[（上）](https://www.xiaoyuzhoufm.com/episode/665c4a1094977a26efa161ed?s=eyJ1IjogIjY0MDg4ZDY3ZWRjZTY3MTA0YTk4YjFhNCJ9)/[(下)](https://www.xiaoyuzhoufm.com/episode/665c523d63c334a2fbca3e30?s=eyJ1IjogIjY0MDg4ZDY3ZWRjZTY3MTA0YTk4YjFhNCJ9)
+>化身课代表研究意识和能量，从外星人那里学会了什么？巴夏传讯是真是假？[（上）](https://www.xiaoyuzhoufm.com/episode/665c4a1094977a26efa161ed?s=eyJ1IjogIjY0MDg4ZDY3ZWRjZTY3MTA0YTk4YjFhNCJ9)/ [(下)](https://www.xiaoyuzhoufm.com/episode/665c523d63c334a2fbca3e30?s=eyJ1IjogIjY0MDg4ZDY3ZWRjZTY3MTA0YTk4YjFhNCJ9)
 
 
 
