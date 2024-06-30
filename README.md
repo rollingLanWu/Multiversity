@@ -4926,8 +4926,6 @@ Accept, Allow, Appreciate
 12. 吸引力法则
 
     **金金：** 吸引力法则：其实你一直在吸引，即使是你不想要的东西。你没有办法不吸引不是自己频率的东西。当一件你不喜欢的事情出现在生命的的时候，你一定要想，我为什么会吸引这个东西。我需要相信什么，我有什么样的能量状态，才会有吸引这样的东西。
-
-
  
 ### 「莫提之地」播客
 *即刻收听并接收能量波！<br>*
@@ -4937,9 +4935,6 @@ Accept, Allow, Appreciate
 * 如果你也想参与，可以添加微信"motizhidi"，预约深度对谈~
 * 作为播客嘉宾：
 >化身课代表研究意识和能量，从外星人那里学会了什么？巴夏传讯是真是假？[（上）](https://www.xiaoyuzhoufm.com/episode/665c4a1094977a26efa161ed?s=eyJ1IjogIjY0MDg4ZDY3ZWRjZTY3MTA0YTk4YjFhNCJ9)/ [(下)](https://www.xiaoyuzhoufm.com/episode/665c523d63c334a2fbca3e30?s=eyJ1IjogIjY0MDg4ZDY3ZWRjZTY3MTA0YTk4YjFhNCJ9)
-
-
-
 
 ### 「无人问金」线下活动
 
