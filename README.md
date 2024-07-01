@@ -8,7 +8,7 @@
 * 🔍"motizhidi" 加入微信群聊交流（先阅读群公告~）
 * 全平台id：莫提之地
   
-   [小红书](https://www.xiaohongshu.com/user/profile/6216cbce000000001000787b?xhsshare=CopyLink&appuid=5b54863b4eacab5fd33f2f00&apptime=1717431184) / 微信视频号(🔍“莫提之地Multiversity”) / [抖音](https://www.douyin.com/user/MS4wLjABAAAADb0dODgljuLBCbqwl362CcvZDmE5px0Do_zrbgXXJBv5JTGrUg95D1UJ1XljzAee) / [莫提之地播客](https://www.xiaoyuzhoufm.com/podcast/65e718c7cf58e9b0073e0d0c)  / [微博](https://weibo.com/u/7915052238)
+   [小红书](https://www.xiaohongshu.com/user/profile/6216cbce000000001000787b?xhsshare=CopyLink&appuid=5b54863b4eacab5fd33f2f00&apptime=1717431184) / 微信视频号(🔍“莫提之地Multiversity”) / [抖音](https://www.douyin.com/user/MS4wLjABAAAADb0dODgljuLBCbqwl362CcvZDmE5px0Do_zrbgXXJBv5JTGrUg95D1UJ1XljzAee) / [播客](https://www.xiaoyuzhoufm.com/podcast/65e718c7cf58e9b0073e0d0c)  / [微博](https://weibo.com/u/7915052238)
 * 小红书不定期直播 / 每月线下活动（微信群内报名）/ [播客深度对话](http://xhslink.com/0Z0nkL)
 
 **文档说明**
