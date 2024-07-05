@@ -4760,11 +4760,11 @@ vs
 
 **金金：**
 * [赛斯书](res/SethSpeaks.pdf)的作者Jane Robert
-* [@AbrahamHicks](www.youtube.com/@AbrahamHicks)
+* 油管[@AbrahamHicks](www.youtube.com/@AbrahamHicks)
   
 **金友推荐：**
-* [@Ruowen](www.youtube.com/@Ruowen)
-* [@木村师哥](https://weibo.com/u/1923886253)
+* 油管[@Ruowen](www.youtube.com/@Ruowen)
+* 微博[@木村师哥](https://weibo.com/u/1923886253)
 * [巴夏](https://mp.weixin.qq.com/s/lc0S1C-Krc8hSrQtBmzi6A)（公众号汉译资料）
 
 ### 4.3 质疑
