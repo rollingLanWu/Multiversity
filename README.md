@@ -11099,4 +11099,4 @@ https://mp.weixin.qq.com/s/FGNPXVvM0CtmTWHQ7iQX2A
 “经金金老师官方同意，将本次线下活动小部分内容做了整理，分享给大家～大部分留个悬念，期待大家在之后的活动中亲身体会。”——by Hailey
 >https://haileyhan144.notion.site/Multiversity-20240512-69143c79925f4e78816e7e47cea24259？pvs=4
 
-*本书附上的电子书资源均为网络搜集供学习使用，若侵犯您的权益请联系：contactme999@tutamail.com，确认后我们会尽快删除！
+*本文档所附电子书均为网络搜集仅供学习使用，若侵犯您的权益请联系：contactme999@tutamail.com，确认后我们会尽快删除！
