@@ -11,7 +11,7 @@
    [小红书](https://www.xiaohongshu.com/user/profile/6216cbce000000001000787b？xhsshare=CopyLink&appuid=5b54863b4eacab5fd33f2f00&apptime=1717431184) / 微信视频号 / [抖音](https://www.douyin.com/user/MS4wLjABAAAADb0dODgljuLBCbqwl362CcvZDmE5px0Do_zrbgXXJBv5JTGrUg95D1UJ1XljzAee) / [播客](https://www.xiaoyuzhoufm.com/podcast/65e718c7cf58e9b0073e0d0c)  / [微博](https://weibo.com/u/7915052238)
 * 小红书和视频号不定期直播与连线 / 线下交流和观影活动（微信群内报名）/ [播客深度对话](http://xhslink.com/0Z0nkL) / 加入[「小奋队」](https://mp.weixin.qq.com/s/HbkJreJCAOjQ5nkCK06KUQ)/ 更多组织形式探索中
 * 周边产品：
-  [「莫提之地兴奋公式笔记本/徽章/年历」兴奋上线中！](https://www.xiaohongshu.com/vendor/670e25e1ea230b00154d551b?naviHidden=yes)
+  [「莫提之地兴奋公式笔记本/徽章/723B·冥想药香」兴奋上线中！](https://www.xiaohongshu.com/vendor/670e25e1ea230b00154d551b?naviHidden=yes)
 
 **文档说明**
 * **文档可转载，但请注明出处。**
