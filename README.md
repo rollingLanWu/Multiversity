@@ -1,4 +1,4 @@
-**Multiversity莫提之地**
+**Multiversity莫提之地，一个用心才能抵达的真我聚集地。**
 
 莫提之地™由金金发起：
 
@@ -7,25 +7,33 @@
 **关注/交流方式**
 * 🔍"motizhidi" 加入微信群聊交流（先阅读群公告）
 * 全平台ID：莫提之地
+  [小红书](https://www.xiaohongshu.com/user/profile/6216cbce000000001000787b？xhsshare=CopyLink&appuid=5b54863b4eacab5fd33f2f00&apptime=1717431184) / 微信视频号 / [抖音](https://www.douyin.com/user/MS4wLjABAAAADb0dODgljuLBCbqwl362CcvZDmE5px0Do_zrbgXXJBv5JTGrUg95D1UJ1XljzAee) / [播客](https://www.xiaoyuzhoufm.com/podcast/65e718c7cf58e9b0073e0d0c)  / [微博](https://weibo.com/u/7915052238)
+* 官网：[motizhidi.com](https://motizhidi.com)
+* 小红书和视频号不定期直播与连线
+* 线下交流和观影活动（微信群内报名）
+* 加入[「小奋队」](https://mp.weixin.qq.com/s/HbkJreJCAOjQ5nkCK06KUQ)
+* [小宇宙「与真我合一」引导冥想](https://www.xiaoyuzhoufm.com/episode/68184bc547ebeede7ece78d8) 
+* [金金1V1深度对谈（线上1小时）](https://www.xiaohongshu.com/goods-detail/68257caf8644dc00017a5e59?xsec_token=XBiC7ILfOFSJHqmq0Hk-IG654CvK0_7k3MDrcDKDSU4Bg=&xsec_source=app_share&instation_link=xhsdiscover%3A%2F%2Fgoods_detail%2F68257caf8644dc00017a5e59%3Ftrade_ext%3DeyJjaGFubmVsSW5mbyI6bnVsbCwiZHNUb2tlbkluZm8iOm51bGwsInNoYXJlTGluayI6Imh0dHBzOi8vd3d3LnhpYW9ob25nc2h1LmNvbS9nb29kcy1kZXRhaWwvNjgyNTdjYWY4NjQ0ZGMwMDAxN2E1ZTU5P2FwcHVpZD01YjU0ODYzYjRlYWNhYjVmZDMzZjJmMDAiLCJsaXZlSW5mbyI6bnVsbCwic2hvcEluZm8iOm51bGwsImdvb2RzTm90ZUluZm8iOm51bGwsImNoYXRJbmZvIjpudWxsLCJzZWFyY2hJbmZvIjpudWxsLCJwcmVmZXIiOm51bGx9%26rate_limit_meta%3DitemId%253D68257caf8644dc00017a5e58%26rn%3Dtrue&xhsshare=CopyLink&appuid=5b54863b4eacab5fd33f2f00&apptime=1748610711&share_id=ca7b1bdff90646ed8b462c23c4f02cfb)
+* [播客深度对话](http://xhslink.com/0Z0nkL)
+* 更多组织形式探索中
   
-   [小红书](https://www.xiaohongshu.com/user/profile/6216cbce000000001000787b？xhsshare=CopyLink&appuid=5b54863b4eacab5fd33f2f00&apptime=1717431184) / 微信视频号 / [抖音](https://www.douyin.com/user/MS4wLjABAAAADb0dODgljuLBCbqwl362CcvZDmE5px0Do_zrbgXXJBv5JTGrUg95D1UJ1XljzAee) / [播客](https://www.xiaoyuzhoufm.com/podcast/65e718c7cf58e9b0073e0d0c)  / [微博](https://weibo.com/u/7915052238)
-* 小红书和视频号不定期直播与连线 / 线下交流和观影活动（微信群内报名）/ [播客深度对话](http://xhslink.com/0Z0nkL) / 加入[「小奋队」](https://mp.weixin.qq.com/s/HbkJreJCAOjQ5nkCK06KUQ)/ [小宇宙「与真我合一」引导冥想](https://www.xiaoyuzhoufm.com/episode/68184bc547ebeede7ece78d8) / [金金1V1深度对谈（线上1小时）](https://www.xiaohongshu.com/goods-detail/68257caf8644dc00017a5e59?xsec_token=XBiC7ILfOFSJHqmq0Hk-IG654CvK0_7k3MDrcDKDSU4Bg=&xsec_source=app_share&instation_link=xhsdiscover%3A%2F%2Fgoods_detail%2F68257caf8644dc00017a5e59%3Ftrade_ext%3DeyJjaGFubmVsSW5mbyI6bnVsbCwiZHNUb2tlbkluZm8iOm51bGwsInNoYXJlTGluayI6Imh0dHBzOi8vd3d3LnhpYW9ob25nc2h1LmNvbS9nb29kcy1kZXRhaWwvNjgyNTdjYWY4NjQ0ZGMwMDAxN2E1ZTU5P2FwcHVpZD01YjU0ODYzYjRlYWNhYjVmZDMzZjJmMDAiLCJsaXZlSW5mbyI6bnVsbCwic2hvcEluZm8iOm51bGwsImdvb2RzTm90ZUluZm8iOm51bGwsImNoYXRJbmZvIjpudWxsLCJzZWFyY2hJbmZvIjpudWxsLCJwcmVmZXIiOm51bGx9%26rate_limit_meta%3DitemId%253D68257caf8644dc00017a5e58%26rn%3Dtrue&xhsshare=CopyLink&appuid=5b54863b4eacab5fd33f2f00&apptime=1748610711&share_id=ca7b1bdff90646ed8b462c23c4f02cfb)/ 更多组织形式探索中
 * 周边产品：
-  [「莫提之地兴奋公式to签笔记本/徽章/冥想药香兴奋上线中！](https://www.xiaohongshu.com/vendor/670e25e1ea230b00154d551b?naviHidden=yes)
+  [「莫提之地兴奋公式to签笔记本/徽章/冥想药香兴奋上线中！」](https://www.xiaohongshu.com/vendor/670e25e1ea230b00154d551b?naviHidden=yes)
+
 
 **文档说明**
 * **文档可转载，但请注明出处。**
 * 文档由金友自发整理，内容主体为社区微信群内问答交流信息，也包括部分视频/直播/线下内容摘录，后续会持续更新、完善框架。整理初衷是被金金社群内容的真诚、智慧、独特视角深深打动，直击心灵、时常感到振聋发聩震耳欲聋醍醐灌顶……故整理成系统文档方便查阅，常看常新！希望对你有帮助~欢迎加入社群一起来玩:)
-* 注：全文蓝色字体点击后可直达对应段落/原文/视频/电子书。
-
+* 搭配ctrl/cmd+F+关键词食用更佳！
   
 ![](/res/head3.png)
 
 |日期|更新日志
 :---:|:---:|
-2025/05/31|更新
+2025/06/01|更新
 ……|……
-2024/06/01|V1.0
+2024/06/01|v1.0
+
 
 
 **目录** 
@@ -1922,6 +1930,8 @@ https://mp.weixin.qq.com/s/eHlgxXuk5POmmwuFD43wIA
 真的非常感谢金金（以及我自己），想通了才发现，原来分手的感觉也可以很幸福和美妙。
 
 ### 评判即不接受，即拒绝发现自己
+**Q：** 金金，我看了成都宣传片中，你说:“修行不是要去到哪里，实现什么，不是要完成什么任务，你唯一的任务就是发现自己。我想不通,「发现自己」好像也是一个指向，如果我认为我们都有一个共同的任务，发现自己，那好像还是会升起分别心。比如我觉得我发现到 60分了，然后评判那些我觉得只有10分的人，仰望那些我觉得90分的人。怎么放下对他人的评判呢?
+
 **金金：** 假设“发现自己”真的有个评分。有意思的地方就在于，你没办法知道你有了60分，因为你不知道你尚未发现的部分有多大。同理，你更无法判别别人的分数。你每个时刻都在被给予新的题目，你甚至都不知道什么时候“收卷”。
 
 发现自己，并不是一个目标，而是一个结果。就像长大不是目标，而是作为一个人自然存在的结果。每当你把自己与他人进行比较，你只是在借由评判他人来评判自己，是你在创造一些理由来不接受一部分的自己，或者他人，而他人也是你内心的反射，所以本质还是不接受一部分的自己。不接受，就是你拒绝发现那部分的自己，在这个过程中，你就“空”了一题。通过比较去参考，发现自己的偏好，理清自己想成为什么样的人，而不是否定外部。
@@ -3429,6 +3439,10 @@ collective automatic mind层面的物理化学数学灵性规律，是蓝图意�
 **金金：** 不诡异，只是你没意识到每天每个时刻全都在这样诡异地进行着，这就是缘分，就是共时性。
 
 ### 缘分只是那些你忘记的决定
+**Q：** 老师，晚上好！我想请教一个问题，谢谢老师！如何关注自己的主线任务，而不是恐惧和关注他人对我的攻击和误解？在我的成长过程中，我经常会遇到女生想要压我一头的行为(当然也得到过很多女孩的帮助和爱)，到现在还没有理清楚这个循环的症结所在之前认识一个女孩，喜欢暗中和我比较以及忽略我的感受，我无法容忍这种行为，但却不能和平面对。我和她说我受不了了，我们闹掰了。这让对方生气了，去跟我们共同的朋友诉说和倾诉，我一边受伤于她的行为，一边也恐惧别人对我的看法。
+
+您刚才所转发的内容，我觉得就是我的问题所在。我选择了降低自己的频率，邀请了这些不好的能量进来。但是还是会反刍对方对我的行为，所以想要请教老师，如何将目光只聚焦在好的事情上？
+
 **金金：** 每个人的主线任务就是在不同的境遇中“克服恐惧”。真相是，别人只是在“攻击”，而只有当你把自己认定为受害者，这时才变成了“攻击你”。是你把害怕失去某些东西的恐惧，投射到了在胡乱挥舞拳头的那个人上，让自己认为她主宰了你的命运。你去抗争，充分表达你的恐惧，境遇无条件地把你的匮乏反射回你，通过缘分让你失去你想要的，而你则会再次怪到她的头上，全然不顾这命运的提醒。看一下电影《满江红》的开头，生命中很多人像张大一样想要压别人一头，抓着最长的稻草得意洋洋，殊不知命运选择的是长是短。缘分决定得失，你决定你想成为什么样的人，而你的决定又会影响缘分，因为缘分只是那些你已忘记的自己的决定。
 
 ### 「一切都是最好的安排」是否会削弱主观能动性？
@@ -4672,6 +4686,9 @@ But the truth is there is nothing super, nothing para about these experiences.Su
 **金金：** 为什么某些情景会让你痛苦，而同样的情境下一些人就不会痛苦。通过不断的痛苦，不断地告诉你，要修正自己的行为、系统，回到正轨。所有痛苦的来源是你没有顺应生命之流。
 
 #### 如何缓解实实在在的痛苦？
+**Q：** 想问问金金，我四年前因为矫正牙齿，当时觉得牙齿有点凸然后也很盲目的信任了当时的那个医生，就没有选择面诊其他医生，采取了他拔牙矫正的方案。现在快矫正完了才知道拔牙矫正带来的很多坏处嘴瘪了，笑起来很奇怪，牙齿也坏了很多，气道也变狭窄了等等很多问题。我很后悔当时的决定，我当时完全可以不做矫正的，就算矫正也可以不拔牙的。我想知道怎么去缓解这种实实在在的问题带来的痛苦和陷入自己错误决定带来的痛苦。
+
+
 **金金：** 并没有“实实在在问题”，这只是你对于一种境遇“实实在在的不接受”和“实实在在的受害者情节”。或许这场失败的矫正，本就不是要矫正你的牙齿，而是矫正你对于自己外貌的不接受的内心，转而让你去关注你生命里的其他方面。如果我们把注意力和能量过多放到一个单一的通道里，放到一个单一的事件上，让自己过不去，你的生命的气道也在变狭窄。你认为奇怪的笑，也许恰恰会逗到某个等待它的人，也许会帮你快速过滤掉不接受你的讨厌你的其他人。当然，最重要的是，离开那个不接受这个微笑的自己。我们无法改变过去，但接受已经发生的，优雅地回应他们才是你的力量。如之前说的，真正的强大，是对一切温柔以待。先对自己温柔，宽恕曾经那个爱美但是犯错的自己，你才能不在未来做决定时瞻前顾后，怕被未来的自己审判。
 
 #### 生理痛苦算不算痛苦？
@@ -10683,6 +10700,12 @@ The greatest power requires the gentlest touch 强大的灵魂表现出来的都
 **金金：** 所有的情绪都是能量的表达，都是感受到了能量的流动，都是感受到了错频，所有能量的流动都是中性的，但你的信念和定义，会让他们转化为积极或消极的“情感”。
 
 ### 事儿是事儿，情绪是情绪
+**Q：** 金金，不好意思这么晚打扰有一个关于愤怒的情绪，不知道如何处理。今天A把我和他的聊天记录发给我B，里面的内容有吐槽所以我非常的生气，气愤感觉自己边界受到了侵犯，所以我当下直接表达了这个情绪。直说了这件事很恶心同时行动上就是直接拒绝参加了已经答应好的同事集体聚餐。所有人都跟我说怎么不去，可是我心里就觉得不想去。
+
+越是喊我，越不想去。以及当时心里想的是，不要觉得我好欺负，这次我就是不去，我不是可以随便对待的人。
+
+好像我在用惩罚的手段处理事情，惩罚对方，惩罚自己蛮奇怪的。当我真的很愤怒的时候，直觉性的行为都具有破坏性。我也不知道为什么，想听金金和大家怎么怎么讲~
+
 **金金：** 事儿是事儿，情绪是情绪，要拎清楚。用行动回应事儿，而不是用情绪回应事儿。当你被情绪所控，就是人们说的被恶魔附体，恶魔就是爱的缺失的隐喻。
 
 当发生你不喜欢的事儿，你会有强烈的“体感”，这种体感本质是你感受到一种“错频”，即你觉得你不该在这里，你想要离开。原因是这个境遇共振到了你某些不愿意面对的信念，让你感受到了不配得、不配被爱、不完整等等。那么这时，你的消极情绪实则是一种积极的提醒：你必须要相信什么才能有如此感受？或者如此感受是为了让你明白什么？开启你的内在探索过程。每当你生气的前10-15秒，明白这就像是你进入到一个很热的房间身体会出汗变得黏糊糊一样，是一种很自然的对于频率差的体感，接受它，擦擦汗。在头脑冲进来解释之前，给自己创造一个觉察的空隙，让自己的意识重掌方向盘。就像是你的身体要把球传给大脑，你在空中“断球”一样。当你意识重新掌舵，你就不会被情绪所控，反而可以“反攻”情绪，找到它的前置的限制性信念。
